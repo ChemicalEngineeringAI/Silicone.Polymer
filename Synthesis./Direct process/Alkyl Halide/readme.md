@@ -4,4 +4,4 @@
 https://www.google.com/search?q=alkyl+halide
 
 # Iodine
-maybe the safest and most inexpensive!odine
+maybe the safest and most inexpensive!
